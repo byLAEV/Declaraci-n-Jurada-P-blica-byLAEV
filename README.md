@@ -65,3 +65,87 @@ La declaración contenida en este repositorio:
 
 **by LAEV Blockchain 🦩**  
 Repositorio oficial de integridad, transparencia y certificación pública.
+
+# Declaración Jurada Pública  
+**Lerry Alexander Elizondo Villalobos**  
+**by LAEV / byLAEV**
+
+## I. Identificación del Declarante
+
+Yo, **Lerry Alexander Elizondo Villalobos**, costarricense de nacimiento, portador de la cédula de identidad **1-1154-0707**, reconocido en el ecosistema internacional de Bitcoin, tecnología blockchain y desarrollo digital bajo los nombres profesionales **by LAEV** y **byLAEV**, emito esta declaración de forma libre, voluntaria y plenamente consciente.
+
+Esta declaración tiene carácter **público, legal, permanente y globalmente accesible**, alojada en GitHub como registro verificable.
+
+---
+
+## II. Declaración de Integridad Personal y Profesional
+
+Declaro bajo juramento, con total firmeza y responsabilidad:
+
+1. **Nunca he sido miembro, participante, colaborador, asociado o integrante** de ninguna organización criminal, red ilícita, estructura delictiva, grupo clandestino o agrupación que atente contra la ley en Costa Rica o en cualquier país del mundo.
+
+2. **Nunca, en ningún momento de mi vida, he formado parte directa o indirectamente** de actividades ilícitas, operaciones encubiertas, conspiraciones, acuerdos irregulares o cualquier tipo de planificación que pueda interpretarse como delito o falta.
+
+3. **Jamás he sido informado, invitado, involucrado o contactado** para participar en actos ilícitos; tampoco he autorizado, permitido o facilitado que mi nombre, reputación o identidad sean utilizados para fines prohibidos por la ley.
+
+4. **No he solicitado bitcoins a absolutamente nadie** de forma engañosa, irregular o con fines cuestionables.  
+   **No he recibido bitcoins de ninguna persona que pueda afirmar lo contrario** a esta declaración.  
+   Mi relación histórica con Bitcoin es profesional, transparente y pública.
+
+---
+
+## III. Razón y Necesidad de Esta Declaración Pública
+
+Manifiesto que soy consciente de que **existe la posibilidad de que algo esté ocurriendo sin mi conocimiento**, y por responsabilidad personal y profesional realizo esta declaración para dejar constancia absoluta de que:
+
+- **no participo**,  
+- **no formo parte**,  
+- **no colaboro**,  
+- **no contribuyo**,  
+- **ni he contribuido jamás**
+
+en ningún hecho ilícito o actividad contraria a la ley o la ética.
+
+El hecho de que desconozca situaciones externas **no implica participación, complicidad o consentimiento**, sino todo lo contrario: refuerza la necesidad de fijar esta posición oficial ante el mundo.
+
+---
+
+## IV. Alcance Legal de la Declaración
+
+Esta declaración:
+
+- se formula ante la **Constitución Política de Costa Rica**,  
+- es válida ante **autoridades nacionales e internacionales**,  
+- tiene valor frente a **instancias judiciales y notariales**,  
+- constituye prueba documental para cualquier auditoría, proceso o consulta institucional.
+
+Lo declarado aquí es la **verdad absoluta**, sin alteraciones ni omisiones.
+
+---
+
+## V. Responsabilidad y Exigencia de Protección de Mi Identidad
+
+Si alguna persona, institución o entidad afirma lo contrario a lo aquí jurado:
+
+- deben aplicarse **medidas inmediatas**,  
+- deben activarse **mecanismos de verificación y protección**,  
+- debe garantizarse que mi nombre no sea vinculado injustamente a situaciones ajenas a mí.
+
+Mi identidad, trayectoria profesional y reputación no deben ser asociadas a hechos o personas con las que nunca he tenido relación ni participación.
+
+---
+
+## VI. Juramento Final
+
+Declaro y juro:
+
+**Todo lo aquí escrito es cierto, verificable y corresponde íntegramente a mi verdad.  
+Asumo total responsabilidad legal, ética y profesional sobre cada una de estas afirmaciones.  
+Esta declaración es oficial, definitiva y pública.**
+
+---
+
+**Lerry Alexander Elizondo Villalobos**  
+**by LAEV / byLAEV**  
+Costa Rica  
+Repositorio oficial en GitHub
